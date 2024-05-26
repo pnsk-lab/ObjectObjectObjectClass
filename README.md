@@ -1,0 +1,2 @@
+# ObjectObjectObjectClass
+おぶじぇくとおぶじぇくと！！
